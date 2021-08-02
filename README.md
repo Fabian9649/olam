@@ -3,7 +3,7 @@
 <title>a</title>
 </head>
 <body bgcolor="pink">
-<h1><p style="color:Orange;">olam pero ola de saludo , no de marm uvu</h1>
+<h1><p style="color:Orange;">olam pero ola de saludo , no de marm uvu
 <img src="https://pa1.narvii.com/7707/b567928b5c78e15f517f40fc504f65c88082107ar1-450-150_hq.gif">
 <h2><p style="color:Blue;">bueno esta es una paginaxd obvio , no ess la mas bonita peroo creo que quedo bien , espero que te gustee ewe</p></h1>
 <h2>que pongoo aquii?? buenoooo algoo de saAaGeeE</h2>
@@ -131,4 +131,4 @@ table, th, td {
 <h2>ninguno funciono xd , bueno luego ,lo intentare de nuevo (estuve 1 hora probandoxdd)</h2>
 <h2>(25) noo funciona pero ya estoy marcando todo lo que voy haciendo jasja</h2>
 </body>
-</html>
+
