@@ -29,7 +29,7 @@ xd tenia la lonchera del kuchauuu recien me di cuenta :(
 <a href="http://www.staggeringbeauty.com/">
 y esta otra que no se que estuve haciendo para que me saliera:i
 </a>
-<h1><p style="color:DarkOrange;"">ira ,te dejo estos videos por si algun dia estas triste o enojadaxd</p></h1>
+<h1><p style="color:DarkOrange;">ira ,te dejo estos videos por si algun dia estas triste o enojadaxd</p></h1>
 <br>ira esto xddd
 <a href="https://www.instagram.com/p/CQoA0RqDT3I/">
 UYKIETO
@@ -41,9 +41,6 @@ rexonaxxddddd👀
 </a>
 <a href="https://www.instagram.com/p/CQZ0219DtaL/">
 <br>aquisinotengonadaquedecirxd
-</a>
-<a href="https://www.facebook.com/watch/?ref=saved&v=571972473322357">
-<br>JAJSJAJS miralo completoxd
 </a>
 <a href="https://www.facebook.com/watch/?ref=saved&v=180150390723004">
 <br>n0o0o0o0o
@@ -57,9 +54,6 @@ rexonaxxddddd👀
 <a href="https://www.instagram.com/p/CQxf0tXD5WP/">
 <br>tiin
 </a>
-<a href="https://www.instagram.com/p/CQ1X5wxh9RE/">
-<br>:=
-</a>
 <a href="https://www.instagram.com/p/CQmuPXht75y/">
 <br>xd
 </a>	
@@ -69,21 +63,16 @@ rexonaxxddddd👀
 <a href="https://www.instagram.com/p/CQsTvnEjoPG/">
 <br>JAJAJ
 </a>
-<a href="https://www.youtube.com/watch?v=usp-_ykJ48U">
-<br>AaaAAANo000JAJAJxdddd
-</a>
 <a href="https://www.youtube.com/watch?v=Sh5_OwepJYY">
 <br>a
 </a>
-<h2>estoy haciendo esto el 10 de julio a la 1:34 AM porque no podia dormir y no te miento</h2>
+<h2>estoy haciendo esto el 12 de julio a la 1:34 AM porque no podia dormir y no te miento</h2>
 <img src="https://pbs.twimg.com/media/EZZeNeyXsAEK1Cw?format=jpg&name=900x900">
 <br><h1>zi hace frio xdd</h1>
 <h2><p style="color:LightSeaGreen;">Buenoo espero que te haya gustado uwu y si no, puess no se f :((</p></h2>
 <h2>yyyy antes de irme</h2>
-<a href="https://www.instagram.com/p/CQFNOxUD_Ec/">
-Jugamos algun dia ? es que ya aprendi un pocoxd
-</a>
-<h2>y puess espero queee juguemos al val otra vez :c , aaa que cosas digoxdd obvio que solo veras esta pagin si jugamos denuevo, porque cuando te envio mensajes al discord me dicen que no te llega nada :c y pues no see xxd espero que regreses pronto (14 de julio)</h2>
+
+<h2>y puess espero queee juguemos al val otra vez :c , aaa que cosas digoxdd obvio que solo veras esta pagin siteveo otra vez, es que te envio mensajes al discord me dicen que no te llega nada :c (15 de julio)</h2>
 si era mi profeee miraa
 <a href="https://www.facebook.com/dylan.cruz.12914/videos/838203403768094">
 <br>xddddd
