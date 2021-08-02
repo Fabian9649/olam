@@ -3,7 +3,7 @@
 <title>a</title>
 </head>
 <body bgcolor="pink">
-<h1><p style="color:Orange;">olam pero ola de saludo , no de marm uvu
+<h1 style="background-color:Orange;">Olam pero ola desaludo no de mar</h1>
 <img src="https://pa1.narvii.com/7707/b567928b5c78e15f517f40fc504f65c88082107ar1-450-150_hq.gif">
 <h2><p style="color:Blue;">bueno esta es una paginaxd obvio , no ess la mas bonita peroo creo que quedo bien , espero que te gustee ewe</p></h1>
 <h2>que pongoo aquii?? buenoooo algoo de saAaGeeE</h2>
