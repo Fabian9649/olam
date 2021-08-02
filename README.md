@@ -5,7 +5,7 @@
 <body bgcolor="pink">
 <h1 style="background-color:Orange;">Olam pero ola desaludo no de mar</h1>
 <img src="https://pa1.narvii.com/7707/b567928b5c78e15f517f40fc504f65c88082107ar1-450-150_hq.gif">
-<h2><p style="color:Blue;">bueno esta es una paginaxd obvio , no ess la mas bonita peroo creo que quedo bien , espero que te gustee ewe</p></h1>
+<h2><p style="color:Blue;">bueno esta es una paginaxd obvio , no ess la mas bonita peroo creo que quedo bienxd , espero que te gustee </p>
 <h2>que pongoo aquii?? buenoooo algoo de saAaGeeE</h2>
 <img src="https://i.pinimg.com/originals/4d/ba/8b/4dba8bb0f57b4e55f5d2df2bc7ba7d6f.png">
 <h2>Comoo odioo a reina porque disparan corriendo y encima si te mata vuela la qlaa mientras se cura nnanan >:k</h2>
