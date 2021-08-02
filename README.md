@@ -66,23 +66,29 @@ rexonaxxddddd👀
 <a href="https://www.youtube.com/watch?v=Sh5_OwepJYY">
 <br>a
 </a>
-<h2>estoy haciendo esto el 12 de julio a la 1:34 AM porque no podia dormir y no te miento</h2>
+<a href="https://www.instagram.com/p/CRphUOzlY6G/">
+>:C
+</a>
+<a href="https://www.instagram.com/p/CR28br5Dq-2/">
+:0000
+</a>	
+<h2>estoy haciendo esto el 14 de julio a la 1:34 AM porque no podia dormir y no te miento</h2>
 <img src="https://pbs.twimg.com/media/EZZeNeyXsAEK1Cw?format=jpg&name=900x900">
 <br><h1>zi hace frio xdd</h1>
 <h2><p style="color:LightSeaGreen;">Buenoo espero que te haya gustado uwu y si no, puess no se f :((</p></h2>
 <h2>yyyy antes de irme</h2>
 
-<h2>y puess espero queee juguemos al val otra vez :c , aaa que cosas digoxdd obvio que solo veras esta pagin siteveo otra vez, es que te envio mensajes al discord me dicen que no te llega nada :c (15 de julio)</h2>
+<h2>y puess espero queee juguemos al val otra vez :c , aaa que cosas digoxdd obvio que solo veras esta pagin siteveo otra vez, es que te envio mensajes al discord me dicen que no te llega nada :c (17 de julio)</h2>
 si era mi profeee miraa
 <a href="https://www.facebook.com/dylan.cruz.12914/videos/838203403768094">
 <br>xddddd
 </a>
-<h1><p style="color:blue;">no sabia si poner este video porque no se como vas a reaccionarrr pero es quee JAAJJ ya somos grandes (17 julio)</p></h1>
-<a href="https://www.facebook.com/fernando.ug.1253/videos/916667669281510/">
-nonoxdd
+<h1><p style="color:blue;">no sabia si poner este video porque no se como vas a reaccionarrr pero es quee JAAJJ ya somos grandes (19 julio)</p></h1>
+<a href="https://www.facebook.com/alan.palacio.5602728/videos/539187013884803">
+TU RAPPI xXD
 </a>
 <h2>y bueno xd , espero que te haya gustado esta pagina fea , es lo pocoo que aprendi este ciclo jajas c:</h2>
-<h2>aaa  (20 de julio) intentaree probar a ver si me acuerdo tunick de discordxddd</h2>
+<h2>aaa  (21 de julio) intentaree probar a ver si me acuerdo tunick de discordxddd</h2>
 <h2><p style="color:green;">solo me acuerdo que tu nick en discord terminaba en #30 , intentare probar , ojala encuentre los numeros correctos jaja  ,22</h2>
 <head>
 <style>
@@ -92,7 +98,7 @@ table, th, td {
 </style>
 </head>
 <body>
-<h1>intentos hoy(23) xd, algo me dice que pasare mucho aqui f</h1>
+<h1>intentos hoy(24) xd, algo me dice que pasare mucho aqui f</h1>
 
 <table>
 	<tr>
@@ -118,6 +124,9 @@ table, th, td {
     </table>
 <h2><p style="color:palevioletred;">intentare masssxd</p></h2>
 <h2>ninguno funciono xd , bueno luego ,lo intentare de nuevo (estuve 1 hora probandoxdd)</h2>
-<h2>(25) noo funciona pero ya estoy marcando todo lo que voy haciendo jasja</h2>
+<h2>(28) noo funciona pero ya estoy marcando todo lo que voy haciendo jasja</h2>
+<a href="https://www.facebook.com/watch/?ref=saved&v=967445220697918">
+miprofe de la facultad es igual ,ahjsdhga
+</a> (1 agosto)
 </body>
 
