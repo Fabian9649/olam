@@ -125,5 +125,5 @@ miprofe de la facultad es igual bueno no XD
 </a> (1 agosto)
 <br>Nopuedeser era #0030 ahora no se si enviarlo:c
 <br><p style="color:green;">porcierto si me conoces,bueno no se que paso ,no se que hice mal , lo siento :cc.tambien estudio en la USIL . jugabamos antes :ccccc
-</body>
+
 
