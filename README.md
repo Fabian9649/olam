@@ -127,5 +127,6 @@ miprofe de la facultad es igual bueno no XD
 <br><p style="color:green;">porcierto si me conoces jugabamos antes c:,bueno no se que paso ,no se que hice mal , lo siento :cc.tambien estudio en la USIL . jugabamos antes :ccccc y nada espero queee entiendas xd
 	<br>De :Fabi 
 	<br> uvu
+	<br>pues cree este discord solo para ver si funcionaba el Nick y si c: , ahorasolo espero que no te enojes :cccc
 
 
