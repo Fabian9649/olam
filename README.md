@@ -125,6 +125,6 @@ miprofe de la facultad es igual bueno no XD
 </a> (1 agosto)
 <br>Nopuedeser era #0030 ahora no se si enviarlo:c(14agosto;((( )
 <br><p style="color:green;">porcierto si me conoces jugabamos antes c:,bueno no se que paso ,no se que hice mal , lo siento :cc.tambien estudio en la USIL . jugabamos antes :ccccc y nada espero queee entiendas xd
-	Fabi
+	<br>De :Fabi
 
 
