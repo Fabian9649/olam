@@ -128,5 +128,6 @@ miprofe de la facultad es igual bueno no XD
 	<br>De :Fabi 
 	<br> uvu
 	<br>pues cree este discord solo para ver si funcionaba el Nick y si c: , ahorasolo espero que no te enojes :cccc
+	<h1>Sabes gar esto lo estoy haciendo el 31 de agosto nada mas para decirte que no se , aaAAa qie iba a adecir? aaaaaaaaa :c soy  un taradoo0o0o0 a ver que qlo que soy , no me acuerdoXDDD , si algun dia ves la pagina de nuevo , recuerda que mientras este yom , siempre podras decirle qlo a alguien y tambienque mientras este , siempre podras hablarme porque estare xdd , bueno si entras y lees esto , pues nada que ia lo sabess uwu aa zi y si lees esto , dime : " que qlo lo que escribiste" asi sabre que si lo viste , ahora si bai H U M I L D A D <br>basico 7 </h1>
 
 
