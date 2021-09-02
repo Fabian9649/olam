@@ -131,4 +131,9 @@ miprofe de la facultad es igual bueno no XD
 	<h2>Sabes gar esto lo estoy haciendo el 30 de agosto nada mas para decirte que no se , aaAAa qie iba a adecir? aaaaaaaaa :c soy  un taradoo0o0o0 a ver que qlo que soy , no me acuerdoXDDD , si algun dia ves la pagina de nuevo , recuerda que mientras este yom , siempre podras decirle qlo a alguien y tambienque mientras este , siempre podras hablarle a alguien asi sea para decir"a", porque estare xdd , bueno si entras y lees esto , pues nada que ia lo sabess uwu aa zi y si lees esto , dime : " que feo lo que escribiste pero ta biem" asi sabre que si lo viste , ahora si bai H U M I L D A D <br>basico 7 LA FEE LA FEEEE ES LO MAS LINDO DE LA VIDAAAA</h2>
 	<h2>Las estrellas te ven y piden un deseo</h2> <br> 
 	<h2> *se sonroja y se va* baixddd</h2>
+	<h3>hoy es 1 de septiembre . bueno nomas queria decir que no hablamos mucho hoy y la verdad si me preocupas porque eres bien chvr ps , y nadaa solo espero que todo este bien y que no te haya pasado nada malo o estes teniendo un mal dia , pero si es en alguno de esos casos te cuento este chiste:</h3>
+	<h3>ira ira eee </h3>
+	<h3>habia una vez un camion que transportaba choclo , dobló y chocló</h3>
+	JA JA JA *risa fingida* 
+	<h3>esperoque te guste , bai uwu xd</h3>
 
