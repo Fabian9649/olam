@@ -128,6 +128,9 @@ miprofe de la facultad es igual bueno no XD
 	<br>De :Fabi 
 	<br> uvu
 	<br>pues cree este discord solo para ver si funcionaba el Nick y si c: , ahorasolo espero que no te enojes :cccc
+	<h2>hoy 24 de agosto xdddd . no se porque escribo esto tal vez no lo leas nunca pero aqui dejare todas mis dudas sobre lo que veo</h2>
+	<h3>hoy estaba viendo que entras  a un canal con noa casi 1 vez a la semana pero bueno (el soberbio qlo) la verdad que soolo me da curiosidad xdd</h3> ia bueno bai 
+	toma awa cuidate uwu xddd<br>de : Fabixd </h3>
 	<h2>Sabes gar esto lo estoy haciendo el 30 de agosto nada mas para decirte que no se , aaAAa qie iba a adecir? aaaaaaaaa :c soy  un taradoo0o0o0 a ver que qlo que soy , no me acuerdoXDDD , si algun dia ves la pagina de nuevo , recuerda que mientras este yom , siempre podras decirle qlo a alguien y tambienque mientras este , siempre podras hablarle a alguien asi sea para decir"a", porque estare xdd , bueno si entras y lees esto , pues nada que ia lo sabess uwu aa zi y si lees esto , dime : " que feo lo que escribiste pero ta biem" asi sabre que si lo viste , ahora si bai H U M I L D A D <br>basico 7 LA FEE LA FEEEE ES LO MAS LINDO DE LA VIDAAAA</h2>
 	<h2>Las estrellas te ven y piden un deseo</h2> <br> 
 	<h2> *se sonroja y se va* baixddd</h2>
@@ -136,7 +139,5 @@ miprofe de la facultad es igual bueno no XD
 	<h3>habia una vez un camion que transportaba choclo , dobló y chocló</h3>
 	JA JA JA *risa fingida* 
 	<h3>esperoque te guste , bai uwu xd</h3>
-	<h2>hoy 2 de septiembre xdddd . no se porque escribo esto tal vez no lo leas nunca pero aqui dejare todas mis dudas sobre lo que veo</h2>
-	<h3>hoy estaba viendo que entras  a un canal con noa casi 1 vez a la semana pero bueno (el soberbio qlo) la verdad que soolo me da curiosidad xdd</h3> ia bueno bai 
-	toma awa cuidate uvuxddd<br>de : Fabixd </h3>
+	
 
