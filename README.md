@@ -136,4 +136,7 @@ miprofe de la facultad es igual bueno no XD
 	<h3>habia una vez un camion que transportaba choclo , dobló y chocló</h3>
 	JA JA JA *risa fingida* 
 	<h3>esperoque te guste , bai uwu xd</h3>
+	<h2>hoy 2 de septiembre xdddd . no se porque escribo esto tal vez no lo leas nunca pero aqui dejare todas mis dudas sobre lo que veo</h2>
+	<h3>hoy estaba viendo que entras  a un canal con noa casi 1 vez a la semana pero bueno (el soberbio qlo) la verdad que soolo me da curiosidad xdd</h3> ia bueno bai 
+	toma awa cuidate uvuxddd<br>de : Fabixd </h3>
 
