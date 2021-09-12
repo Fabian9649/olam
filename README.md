@@ -137,5 +137,6 @@ miprofe de la facultad es igual bueno no XD
 	<h3>habia una vez un camion que transportaba choclo , dobló y chocló</h3>
 	JA JA JA *risa fingida* 
 	<h3>esperoque te guste , bai uwu xd</h3>
+	<h2>buenom hoy es 10 de septiembre y te juro que fue uno de los mejores dias que tuve , tenk iu gar , aaaAAa y las canciones uff guddd <3</h2>
 	
 
