@@ -137,6 +137,7 @@ miprofe de la facultad es igual bueno no XD
 	<h2>buenom hoy es 10 de septiembre y te juro que fue uno de los mejores dias que tuve , tenk iu gar , aaaAAa y las canciones uff guddd <3</h2>
 		<h2>n0o0o0o0 te creo hoy 13 de septiembre , dijiste que te gustabaaa AAAaaaaAaAa , ESTOY cryyy de emocion <3 </h2>
 			<h2>Y sabes gar , te quiero un monton <333 , eres perfectaaaaaa , eres increible tu, tu voz , tu ingles , todooo garrr , te quieroooo<3333333</h2>
+			<h1>TAMO<3</h1>
 				
 															   
 	
