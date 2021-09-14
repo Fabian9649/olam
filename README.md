@@ -128,9 +128,6 @@ miprofe de la facultad es igual bueno no XD
 	<br>De :Fabi 
 	<br> uvu
 	<br>pues cree este discord solo para ver si funcionaba el Nick y si c: , ahorasolo espero que no te enojes :cccc
-	<h2>hoy 24 de agosto xdddd . no se porque escribo esto tal vez no lo leas nunca pero aqui dejare todas mis dudas sobre lo que veo</h2>
-	<h3>hoy estaba viendo que entras  a un canal con noa casi 1 vez a la semana pero bueno (el soberbio qlo) la verdad que soolo me da curiosidad xdd</h3> ia bueno bai 
-	toma awa cuidate uwu xddd<br>de : Fabixd </h3>
 	<h2>Sabes gar esto lo estoy haciendo el 30 de agosto nada mas para decirte que no se , aaAAa qie iba a adecir? aaaaaaaaa :c soy  un taradoo0o0o0 a ver que qlo que soy , no me acuerdoXDDD , si algun dia ves la pagina de nuevo , recuerda que mientras este yom , siempre podras decirle qlo a alguien y tambienque mientras este , siempre podras hablarle a alguien asi sea para decir"a", porque estare xdd , bueno si entras y lees esto , pues nada que ia lo sabess uwu aa zi y si lees esto , dime : " que feo lo que escribiste pero ta biem" asi sabre que si lo viste , ahora si bai H U M I L D A D <br>basico 7 LA FEE LA FEEEE ES LO MAS LINDO DE LA VIDAAAA</h2>
 	<h3>hoy es 1 de septiembre . bueno nomas queria decir que no hablamos mucho hoy y la verdad si me preocupas porque eres bien chvr ps , y nadaa solo espero que todo este bien y que no te haya pasado nada malo o estes teniendo un mal dia , pero si es en alguno de esos casos te cuento este chiste:</h3>
 	<h3>ira ira eee </h3>
@@ -138,6 +135,9 @@ miprofe de la facultad es igual bueno no XD
 	JA JA JA *risa fingida* 
 	<h3>esperoque te guste , bai uwu xd</h3>
 	<h2>buenom hoy es 10 de septiembre y te juro que fue uno de los mejores dias que tuve , tenk iu gar , aaaAAa y las canciones uff guddd <3</h2>
-		<h2>n0o0o0o0 te creo hoy 13 de septiembre , dijiste que te gustabaaa AAAaaaaAaAa , ESTOY cryyy de emocion <3</h2>
+		<h2>n0o0o0o0 te creo hoy 13 de septiembre , dijiste que te gustabaaa AAAaaaaAaAa , ESTOY cryyy de emocion <3 </h2>
+			<h2>Y sabes gar , te quiero un monton <333 , eres perfectaaaaaa , eres increible tu, tu voz , tu ingles , todooo garrr , te quieroooo<3333333</h2>
+				
+															   
 	
 
