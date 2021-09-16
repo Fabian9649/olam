@@ -136,8 +136,8 @@ miprofe de la facultad es igual bueno no XD
 	<h3>esperoque te guste , bai uwu xd</h3>
 	<h2>buenom hoy es 10 de septiembre y te juro que fue uno de los mejores dias que tuve , tenk iu gar , aaaAAa y las canciones uff guddd <3</h2>
 		<h2>n0o0o0o0 te creo hoy 13 de septiembre , dijiste que te gustabaaa AAAaaaaAaAa , ESTOY cryyy de emocion <3 </h2>
-			<h2>Y sabes gar , te quiero un monton <333 , eres perfectaaaaaa , eres increible tu, tu voz , tu ingles , todooo garrr , te quieroooo<3333333</h2>
-			<h1>TAMO<3</h1>
+			<h2>Y sabes gar , te quiero un monton <333 , tu, tu voz , tu ingles , todooo garrr <3</h2>
+			<h2>lo siento sabes , todo fue mi culpa , no debi decir "te amo" sin saber que era lo que queria, espero podamos ser panas gar:(  9:00 pm(15/9)</h2>
 				
 															   
 	
