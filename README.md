@@ -137,8 +137,8 @@ miprofe de la facultad es igual bueno no XD
 	<h2>buenom hoy es 10 de septiembre y te juro que fue uno de los mejores dias que tuve , tenk iu gar , aaaAAa y las canciones uff guddd </h2>
 			<h2>lo siento sabes , todo fue mi culpa , no debi decir "te amo" sin saber que era lo que queria, espero podamos ser panas gar:(  9:00 pm(15/9)</h2>
 	<h2>si lees esto alguna vez solo quieroo decir que</h2>
-			<h2>ssiii quuieres que seamos panass , pues dime ,"va ta biem , panas"    perooo. si no quieress dime:"noo ,mejor no " y ta biem io lo entenderé</h2>
-	<h2>y nadaa espero que ia este todo biem uvu </h2>
+			<h2>la verdad es que ioo quiero que seamos panas , es que tu me caes tan biem , que enserio solo por eso no quiero perder a alguien tan divertida y que me hizo pasar los mejores momentos que tuve </h2>
+	<h2>pero espero que ia este todo biem y seamos panas uwu</h2>
 				
 															   
 	
