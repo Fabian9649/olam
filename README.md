@@ -138,7 +138,9 @@ miprofe de la facultad es igual bueno no XD
 			<h2>lo siento sabes , todo fue mi culpa , no debi decir "te amo" sin saber que era lo que queria, espero podamos ser panas gar:(  9:00 pm(15/9)</h2>
 	<h2>si lees esto alguna vez solo quieroo decir que</h2>
 			<h2>la verdad es que ioo quiero que seamos panas , es que tu me caes tan biem , que enserio solo por eso no quiero perder a alguien tan divertida y que me hizo pasar los mejores momentos que tuve </h2>
-	<h2>pero espero que ia este todo biem y seamos panas uwu</h2>
+	<h2>aaa ,sabia que nada seria igual ,pero buemno lo intente, i try know, solo espero que seas feliz con alguien que si sabe lo que quiere </3 , buemno y antes de suubir al avi ,tmb recorde que esta "amistad"duro 1 mes KJASFLKAF queee ,porque hace 1 mes te habia vuelto a encontrar , buemno ahora ci , io no era el correcto . ia llegara alguien mejor , cuidateee </h2>
+		<h2>y nada que esta pagina estara para siempre , ycuando quieras verla , ppues ahi esta</h2<
+			
 				
 															   
 	
