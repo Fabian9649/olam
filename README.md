@@ -137,7 +137,10 @@ miprofe de la facultad es igual bueno no XD
 	<h2>buenom hoy es 10 de septiembre y te juro que fue uno de los mejores dias que tuve , tenk iu gar , aaaAAa y las canciones uff guddd </h2>
 			<h2>lo siento sabes , todo fue mi culpa , no debi decir "te amo" sin saber que era lo que queria, espero podamos ser panas gar:(  9:00 pm(15/9)</h2>
 	<h2>si lees esto alguna vez solo quieroo decir que</h2>
-		<h2>esta pagina estara para siempre , ycuando quieras verla , ppues ahi estauvu</h2>
+		<h2>esta pagina estara para siempre , ycuando quieras verla , ppues ahi estauvu y tmb esta otra , no se si lo veras algum dia , si sigues viendo esta pagina , pero si algun dia ves esto ira ira la pagina de abajo.</h2>
+	<a href:"https://fabian9649.github.io/uvu/">
+		clickeamexd
+	</a>
 			
 				
 															   
