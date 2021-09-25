@@ -135,7 +135,6 @@ miprofe de la facultad es igual bueno no XD
 	JA JA JA *risa fingida* 
 	<h3>esperoque te guste , bai uwu xd</h3>
 	<h2>buenom hoy es 10 de septiembre y te juro que fue uno de los mejores dias que tuve , tenk iu gar , aaaAAa y las canciones uff guddd </h2>
-			<h2>lo siento sabes , todo fue mi culpa , no debi decir "te amo" sin saber que era lo que queria, espero podamos ser panas gar:(  9:00 pm(15/9)</h2>
 	<h2>si lees esto alguna vez solo quieroo decir que</h2>
 		<h2>esta pagina estara para siempre , ycuando quieras verla , ppues ahi estauvu y tmb hay otra , no se si lo veras algum dia esque me da miedo enviarlo pero ia ps algum dia tendre que hacerlo JAJFAJ , gueit a momen plis uvu</h2>
 			
